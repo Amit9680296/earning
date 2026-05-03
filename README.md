@@ -1,0 +1,2 @@
+# earning
+Join telegram 
